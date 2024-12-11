@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Business Analytics and Quality Assurance
 - 💞️ I’m looking to collaborate on projects which needs some help regarding ideas, problems, and proposals.
 - 📫 How to reach me Nirname.s@gmail.com
-- 😄 Pronouns: Singh
+- 😄 Pronouns: Mysterious
 - ⚡ Fun fact: Explore all Horizons to soo which suits you well.
 
 <!---
